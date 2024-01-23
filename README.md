@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IsaiahFAW
+- 👀 I’m interested in AI 
+- 🌱 I’m currently learning Video Editing Videography Cinematography, HTML, CSS, JavaScript, Python
+- 💞️ I’m looking to collaborate on LinkedIN
+- 📫 How to reach me isaiah@levat3.com
